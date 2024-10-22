@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @DaniCC361
+- 👀 I’m interested in learning to code for ftc.
+- 🌱 I’m currently learning how to code in java
+- 📫 You can reach me at my email "alvardkony@icloud.com"
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I'm Mexican. I'm Straight. I'm a Male.
